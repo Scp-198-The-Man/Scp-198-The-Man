@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Scp-198-The-Man
 - 👀 I’m interested in administration
-- 🌱 I’m currently learning <<no...>>
+- 🌱 I’m currently learning how to make nuke
 - 💞️ I’m looking to collaborate on Devlopment
 - 📫 How to reach me idk
+- and just i dont reply for chat lol :) im soooooooo funy (say yes)
